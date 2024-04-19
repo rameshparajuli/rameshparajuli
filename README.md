@@ -20,7 +20,7 @@
 
 - 📫 Email Address **rameshparajuli09@gmail.com**
 
-- ⚡ Fun fact: **I love travelling, swimming, singing and reading**
+- ⚡ Fun fact: **I love travelling, swimming, reading and listening music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

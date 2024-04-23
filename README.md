@@ -1,4 +1,4 @@
-![](profile.jpeg)
+
 
 <h1 align="center">Hi 👋, I'm Ramesh Parajuli</h1>
 <h3 align="center">A passionate Software Developer.</h3>
